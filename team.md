@@ -1,7 +1,7 @@
 ### XTRAA - Founding Team
 
-- [Dan](https://www.linkedin.com/in/daniel-chia-00ab161b/)
-- [Gerardo](https://www.linkedin.com/in/gerardo-lemus-826abb9/)
+- [Dan Chia](https://www.linkedin.com/in/daniel-chia-00ab161b/)
+- [Gerardo Lemus](https://www.linkedin.com/in/gerardo-lemus-826abb9/)
 - [에스원](https://www.linkedin.com/in/parksang1/)
 
 ### Our Mission
