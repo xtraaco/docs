@@ -1,4 +1,4 @@
-### XTRAA Founders
+### XTRAA - Founding Team
 
 - [Dan](https://www.linkedin.com/in/daniel-chia-00ab161b/)
 - [Gerardo](https://www.linkedin.com/in/gerardo-lemus-826abb9/)
